@@ -1,3 +1,3 @@
-# Ecosystem Memory
+# Ecosystem Amnesia
 
-**To accumulate to innovate; to innovate to foreget**
+**To accumulate to innovate; to innovate to forget**
